@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0;url=http://www.labcomputomovil.upiita.ipn.mx/gislatam/index.html">
